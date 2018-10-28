@@ -1,20 +1,18 @@
 ---
 templateKey: blog-post
-title: A beginners’ guide to brewing with Chemex
+title: Semaines de vacances d'automne
 date: 2017-01-04T15:04:10.000Z
 description: >-
-  Brewing with a Chemex probably seems like a complicated, time-consuming
-  ordeal, but once you get used to the process, it becomes a soothing ritual
-  that's worth the effort every time.
+  12-24.10.2018. Camile et Paulin sont allés dormir chez grand-papa.Charlotte de
+  son côté et reste à Fribourg avec Fabien et Virginie.Elle avait une course des
+  servants de mese à Lausane à Aquatis et ensuite la visite de Romainmotier.Elle
+  en est revenu enchautée (avec soeur Marie-Vereine)Samedi soire(le 13.10)tout
+  le monde s`est retrouvé.
 tags:
   - brewing
   - chemex
 ---
 ![chemex](/img/chemex.jpg)
-
-12-24.10.2018
-
-
 
 Camile et Paulin sont allés dormir chez grand-papa.Charlotte de son côté et reste à Fribourg avec Fabien et Virginie.Elle avait une course des servants de mese à Lausane à Aquatis et ensuite la visite de Romainmotier.Elle en est revenu enchautée (avec soeur Marie-Vereine)Samedi soire(le 13.10)tout le monde s`est retrouvé.
 
