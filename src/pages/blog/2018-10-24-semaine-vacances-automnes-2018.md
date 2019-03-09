@@ -1,7 +1,7 @@
 ---
 templateKey: blog-post
 title: Semaines de vacances d'automne
-date: 2017-01-04T15:04:10.000Z
+date: 2018-10-24T15:04:10.000Z
 description: >-
   12-24.10.2018. Camile et Paulin sont allés dormir chez grand-papa.Charlotte de
   son côté et reste à Fribourg avec Fabien et Virginie.Elle avait une course des
@@ -9,10 +9,9 @@ description: >-
   en est revenu enchautée (avec soeur Marie-Vereine)Samedi soire(le 13.10)tout
   le monde s`est retrouvé.
 tags:
-  - brewing
-  - chemex
+  - vacances
+  - autonmne
 ---
-![chemex](/img/chemex.jpg)
 
 Camile et Paulin sont allés dormir chez grand-papa.Charlotte de son côté et reste à Fribourg avec Fabien et Virginie.Elle avait une course des servants de mese à Lausane à Aquatis et ensuite la visite de Romainmotier.Elle en est revenu enchautée (avec soeur Marie-Vereine)Samedi soire(le 13.10)tout le monde s`est retrouvé.
 
