@@ -22,7 +22,7 @@ Vite Charlotte, Paulin et Fabien vont acheter un casque bluetooth.
 Samedi - 02.03.2018
 -------------------
 
- 
+Lessive et lessive et repos.
 
 Dimanche - 03.03.2018
 ---------------------
@@ -35,15 +35,40 @@ s'il vous plaît.
 Lundi - 04.03.2018
 ------------------
 
-Visite de Rémy, Nathalie, Robin et Mathis à Torgon
+Visite de Rémy, Nathalie, Robin et Mathis à Torgon. Nous avons mangé la dernière
+courge qui venait de la récolte de Paulin. Virginie a fait quelques emplettes à
+la Jorette pour garnir la table. Finalement tout les juniors montent à
+Versegère. C'est Delphine l'amie d'enfance de Fabien qui fait le taxi.
 
-05.03.2018
-----------
+Mardi - 05.03.2018
+------------------
 
 Carnaval pour les enfants.
 
+Charlotte: nous sommes montés sur les chars. Nous avons lancé des confettis sur
+tout le monde. C'était top. Chacun avait son déguisement, Charlotte en clown,
+Anaël, Aurèle et Gaël avait le costume d'indien, Paulin était le vampire de
+service et Camile le pirate. Après un joli carnaval, nous sommes rentrés à
+Massongex et avons filé dans la cabane pour jouer. Malheureusement Aurèle a dû
+nous quitter, car il avait un camp de musique. Anaël, Paulin et Charlotte sont
+restés dormir dans le camping-car. Les deux plus petits ont dormi dans la maison
+avec grand-papy.
+
 Mercredi - 06.03.2018
 ---------------------
+
+Charlotte et Paulin: Après cette nuit de repos bien méritée, nous avons dévoré
+les tartines à grand-papa. Ouf qu'on lui a laissé ses doigts. La météo n'était
+pas la meilleure, nous sommes donc resté à l'intérieur avec différentes
+activités: monopoly, petit tournoi de 10 de chutes, jeux d'Afrique. Le temps a
+vite filé. Suite à un petit rayon de soleil, nous n'avons pas hésité une seconde
+à jouer dans notre cabane préfère. Nous étions tellement occupé que nous avons
+presque oublié de manger! Ouf que grand-papa nous a pas oublié, lui. A 2 heures
+le foyer a débarqué. La moitié du foyer et la fidèle Laitie sont allés faire un
+petit tour. L'autre moitié et les trois grands sont restés à l'atelier de
+grand-papy pour effectuer de jolis bricolages. Quelle coquine cette Laitie, elle
+s'est enfuie de la maison pendant la promenade. Sont restés à dormir une nuit de
+plus, les Udriot juniors.
 
 Mercredi des cendres. Fabien et Virginie ont été à la messe à Fribourg. Il
 devait de toute façon retourner à Fribourg pour la journée de jeudi comme
@@ -52,20 +77,38 @@ Virginie avait un cours à l'uni sur les évangiles synoptiques.
 Jeudi - 07.03.2018
 ------------------
 
-Fabien et Virginie sont rentrés de Fribourg. Fabien est resté travaillé à
-Vionnaz au Manoir. Après les commissions Virginie sadf
+Fabien et Virginie sont rentrés de Fribourg. Fabien est resté travailler à
+Vionnaz au Manoir pendant que Virginie et la clique sont allés faire des
+commissions. Le caddie était bien plein et tout le monde était fatigué,
+grand-parents compris.
 
 Vendredi - 08.03.2018
 ---------------------
 
-Le matin nous avons fixé les nichoirs pour les oiseaux avec Paulin. Virginie a
-trouvé ça bien sympa.
+Le matin Fabien et Paulin ont fixé les nichoirs pour les oiseaux. Dur, dur de
+trouver les bonnes places. Ils ont dû réfléchir à plusieurs choses : assez haut
+à cause des chats, dans les arbres pour attirer les oiseaux et bien accrochés
+pour protéger de la prise au vent. Virginie a trouvé ça bien sympa. Charlotte,
+pendant ce le temps-là, devait guérir de son angine par le repos.
+
+Et au boulot! Le bois pour l'après-midi. Les 3 garçons rejoignent le grand-père
+et sa grosse tronçonneuse pour débiter les troncs en bas de Torgon. Des vrais
+pros à l'action, Paulin à l'empilement et Camile au transport. Virginie et
+Charlotte rejoigne le groupe au moment de l'entassement dans le garage. Fabien
+donne tout, travail d'équipe.
+
+Repas de sultan pour la récompense : saucisse, saumon, salade de carottes faite
+par Camile et Charlotte, tout ceci au coin d'un bon feu.
+
+
 
 Samedi - 09.03.2018
 -------------------
 
 Journée un peu pluvieuse. Nous faisons des Rubik's cube en famille. Avec Paulin,
-nous avons recopier les formules sur un classeur. Bataille de Nerf aussi.
+nous avons recopié les formules sur un classeur en ligne. Bataille de Nerf
+aussi. Virginie profite pour mettre en ordre la maison et tond ses hommes.
+Bagages et préparatifs pour le retour.
 
 ![](/img/2019-03-09-semaine-vacances-caranval-2019/0d438ef0-cd18-46d5-b423-df863070ca40.jpeg)
 
