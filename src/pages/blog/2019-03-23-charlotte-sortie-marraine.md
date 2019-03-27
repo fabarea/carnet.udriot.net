@@ -25,19 +25,19 @@ Nous sommes allés avec la voiture à la Roche chez un pâtissier.
 C’était la surprise pour tous. Personne n’était au courant de ce que nous
 allions faire.
 
-Arrivé sur place, nous nous sommes doutés qu’il s’agissait d’un lapin de Pâques.
+Arrivés sur place, nous nous sommes doutés qu’il s’agissait d’un lapin de Pâques.
 
-Nous sommes entrés. Un très gentil pâtissier nous a accueilli et nous amené dans
+Nous sommes entrés. Un très gentil pâtissier nous a accueillis et nous a amenés dans
 une salle au sous-sol.
 
 Le pâtissier nous a fait visiter ses locaux. Après une visite intéressante, il
 nous a introduit dans le salle de fabrication. Notre intuition était assez
-juste: nous allons faire des lapins de Pâques mais en masspin et chocolat.
+juste: nous allons faire des lapins de Pâques mais en massepin et chocolat.
 
-“Maintenant place au apprentis pâtissier”.
+“Maintenant place aux apprentis pâtissiers”.
 
 **Première étape**, notre guide a fait le chocolat et a mélangé du chocolat au
-lait fondu avec de la poudre de cacao et des flocons bien croustillant. Nous les
+lait fondu avec de la poudre de cacao et des flocons bien croustillants. Nous les
 avons placés dans des moules et hop au frigo.
 
 **Deuxième étape**: décoration. Notre guide nous a montré comment faire les
@@ -58,10 +58,10 @@ Nous devions coller la partie du haut en équilibre sur la base. Gare aux
 oreilles qui tombaient. Après cet effort de précision, nous avons pris un bon
 quatre heures: chocolat avec pain que le pâtissier avait préparé lui-même.
 
-**Cinquième étape**: nous avons mis nos chefs d’oeuvre dans des sachets et les
+**Cinquième étape**: nous avons mis nos chefs-d’oeuvre dans des sachets et les
 avons agrafés.
 
-Nous avons remerciés le pâtissier et sommes rentrés tout content.
+Nous avons remercié le pâtissier et sommes rentrés tout contents.
 
  
 
